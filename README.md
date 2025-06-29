@@ -111,5 +111,3 @@ Im Vergleich zu traditionellen Angeboten wie `update-akademie.ch` oder `safs.com
 ⭐ Gib uns ein GitHub-Star oder teile dein Feedback!
 
 ---
-
-Wenn du willst, kann ich dir diese Fassung gleich als `.md`-Datei aufbereiten – oder als Vorschlag direkt für dein GitHub-Repo exportierbar machen. Sag einfach Bescheid.
