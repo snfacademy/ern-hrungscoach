@@ -98,7 +98,7 @@ Alle Antworten zur Ausbildung findest du in unseren [Ernährungscoach FAQs](http
 
 ---
 
-## 🔑 Tags & Keywords für maximale Sichtbarkeit
+## 🔑 Tags & Keywords
 
 **Tags**: Ernährungscoach Ausbildung Basel, Online Gesundheitscoaching Schweiz, flexibles Ernährungscoaching Basel, Selbstständigkeit Ernährungsberatung Schweiz, Ernährungscoach Zertifikat online, Content Creation Ernährungscoach, Business Aufbau Ernährungscoach Basel, Mindset Coaching Schweiz, Geld verdienen Ernährungscoach online.  
 **Keywords**: Ernährungscoach Ausbildung Basel, Online Ernährungsberatung Schweiz, flexibles Gesundheitscoaching Basel, Selbstständigkeit Ernährungscoach Schweiz, Ernährungscoach Zertifikat online Basel, 1-to-1 Betreuung Ernährungscoach, Marketing Strategie Ernährungscoach Basel, Birol Isik Mindset Resilienz Training.
